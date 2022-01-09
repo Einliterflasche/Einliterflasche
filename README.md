@@ -1,1 +1,1 @@
-- Hi, I’m @Einliterflasche, a German student!
+- Hi, I’m @Einliterflasche
